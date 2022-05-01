@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ahmedgzi07@gmail.com**
 
-- ⚡ Fun fact **I like making projects because it motivates me to learn new technology**
+- ⚡ fact **I like making projects because it motivates me to learn new technology**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
